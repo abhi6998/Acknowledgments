@@ -19,4 +19,4 @@ The List of People who have been always there is mentioned in the Alphbeticial o
 16. Saikiran Upadhyayula
 17. Syed Saqlain Ahmed
 18. Vibha Kapoor
-19. Vikas Thakur
+19. Vikash Thakur
